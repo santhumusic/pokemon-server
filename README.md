@@ -17,7 +17,7 @@
 
 [ᴍᴇ] ғᴏʀ [``ᴅᴇᴠ``](https://github.com/blackcat097)
 
-[ᴘᴏᴋᴇᴍᴏɴ] ғᴏʀ [``ᴏᴡɴᴇʀ&ᴄʀᴇᴀᴛᴏʀ``] (https://github.com/telugucoderss) 
+[ᴘᴏᴋᴇᴍᴏɴ] ғᴏʀ [``ᴏᴡɴᴇʀ&ᴄʀᴇᴀᴛᴏʀ``](https://github.com/telugucoderss) 
 
 [ᴛᴇʟᴜɢᴜ-ᴄᴏᴅᴇʀs] ғᴏʀ [``ᴍᴀᴅᴇ ғᴏʀ ᴛʜɪs``](https://t.me/tgshadow_fighters) 
 
