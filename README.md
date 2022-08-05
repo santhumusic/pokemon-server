@@ -15,9 +15,9 @@
 
 **ᴇɴᴊᴏʏ ᴘᴀᴅᴀɢᴏ**
 
-[ᴍᴇ] ғᴏʀ [``ᴅᴇᴠ``](https://github.com/blackcat097)
+ᴍᴇ ғᴏʀ [``ᴅᴇᴠ``](https://github.com/blackcat097)
 
-[ᴘᴏᴋᴇᴍᴏɴ] ғᴏʀ [``ᴏᴡɴᴇʀ&ᴄʀᴇᴀᴛᴏʀ``](https://github.com/telugucoderss) 
+[ᴘᴏᴋᴇᴍᴏɴ](https://t.me/Tc_pokemon) ғᴏʀ [``ᴏᴡɴᴇʀ&ᴄʀᴇᴀᴛᴏʀ``](https://github.com/telugucoderss) 
 
-[ᴛᴇʟᴜɢᴜ-ᴄᴏᴅᴇʀs] ғᴏʀ [``ᴍᴀᴅᴇ ғᴏʀ ᴛʜɪs``](https://t.me/tgshadow_fighters) 
+[ᴛᴇʟᴜɢᴜ-ᴄᴏᴅᴇʀs](https://t.me/tgshadow_fighters) ғᴏʀ [``ᴍᴀᴅᴇ ғᴏʀ ᴛʜɪs``](https://t.me/tgshadow_fighters) 
 
