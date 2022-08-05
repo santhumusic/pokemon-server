@@ -1,6 +1,6 @@
 # ᴘᴏᴋᴇᴍᴏɴ-sᴇʀᴠᴇʀ
 
-➠ ᴍᴀᴅᴇ ᴡɪᴛʜ ʟᴏᴠᴇ ʙʏ [ᴘᴏᴋᴇᴍᴏɴ](https://t.me/Tc_pokemon) & [ᴛᴇʟᴜɢᴜ-ᴄᴏᴅᴇʀs](https://t.me/tgshadow_fighters) 
+➠ ᴍᴀᴅᴇ ᴡɪᴛʜ ʟᴏᴠᴇ ʙʏ [ᴘᴏᴋᴇᴍᴏɴ](https://t.me/Tc_pokemon)``&`` [ᴛᴇʟᴜɢᴜ-ᴄᴏᴅᴇʀs](https://t.me/tgshadow_fighters) 
 
 
 ➠ ɴᴇxᴛ ɢᴇɴᴇʀᴀᴛɪᴏɴ sᴇʀᴠᴇʀ 
